@@ -1,3 +1,3 @@
 # cake_hunters
 
-Nurs Syahirah Binti Md Isa (247881)
+Nur Syahirah Binti Md Isa (247881)
